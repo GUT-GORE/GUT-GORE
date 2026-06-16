@@ -1,6 +1,8 @@
 <p align="center"><kbd> ME AND <a href="https://github.com/MoriouChoRadio" title= peeboy >MUTT</a> = TOILETDUO </kbd> </p><br>
- <p align="center"><img src="https://api.visitorbadge.io/api/visitors?path=um8rella&label=+++INJECTIONS+++&labelColor=671594&countColor=000000&style=square" title="DIDN'T THINK I'D PUT A TITLE HERE, DID YOU?" /></p>
-<p align="center"> <img width="37%" alt="simongraph" src="https://github.com/user-attachments/assets/1ef484a3-7e79-437a-91db-027837486d8a" title="ART BELONGS TO SKELTRR."/></p>
+ <p align="center"><img src="https://api.visitorbadge.io/api/visitors?path=um8rella&label=+++ITERATION+IN+CYCLE+++&labelColor=a31c0d&countColor=000000&style=square" title="DIDN'T THINK I'D PUT A TITLE HERE, DID YOU?" /></p>
+<p align="center"> <img width="85%" src="https://github.com/user-attachments/assets/4c14edcf-3f1a-4892-a0a1-e0e350925d7a" title="this is my dada, hi~~" />
+
+</p>
 <table border="0" align="center">
  <tr align="center">
   <th>
@@ -13,4 +15,4 @@
  </th>
  </tr>
 </table>
-<p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM.">RYAN CALLOUT DOC</a>
+<p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM."><sub>RYAN CALLOUT DOC</sub></a>
