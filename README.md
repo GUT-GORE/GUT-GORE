@@ -15,4 +15,4 @@
  </th>
  </tr>
 </table>
-<p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM."><sub>RYAN CALLOUT DOC</sub></a>
+<p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM."><sub>RYAN CALLOUT DOC</sub></a><br><sub>i didnt make this doc, it belongs to <i>Mimi.</i></sub>
