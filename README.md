@@ -8,7 +8,7 @@
    rentry</a>ㅤㅤ
     <a href="https://guns.lol/purpleducktape" title="discord user and such.">
       guns.lol</a>ㅤㅤ
-    <a href="https://re9quiem.atabook.org/" title="send me a message.">
+    <a href="https://zombielovejuice.atabook.org/" title="send me a message.">
       新Book</a></p>
 
 <p align="center"> <a href="https://rjcallout.straw.page/" title="DO NOT SEND HARASSMENT TO RYAN IF YOU KNOW HIM."><sub>RYAN CALLOUT DOC</sub></a><br>
